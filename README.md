@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @itayverchik
+- 👀 I’m interested in developing better marketing platforms.
+- 🌱 I’m currently learning A.I.
+- 💞️ I’m looking to collaborate on building those platforms.
+- 📫 How to reach me at twitter, instagram. facebook - username: @itayverchik.
